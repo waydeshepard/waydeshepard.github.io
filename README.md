@@ -1,1 +1,0 @@
-# waydeshepard.github.io
